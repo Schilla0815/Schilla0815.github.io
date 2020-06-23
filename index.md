@@ -10,3 +10,7 @@ Errate wer es ist!
  * Manta Manta
  * Keinohrhasen
  * Tatort
+
+Sein berühmtestes Filmzitat:
+> Wenn du dich für andere freuen kannst, 
+> kriegt dein Leben viel mehr Qualität.
